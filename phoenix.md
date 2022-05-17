@@ -1,5 +1,5 @@
 # Phoenix, AZ'de 48 Saat
-## 1.gün
+## 1. gün
 Phoenix'teki ilk anlarınız Phoenix Sky Harbor Uluslararası Havalimanı'nda geçecek. Amerika Birleşik Devletleri'ne vardığınızda gümrükten geçeceksiniz. ABD'ye gelen uçuşunuzda bir form almış olmalısınız. Bunu büyük olasılıkla farklı bir havaalanında yaptınız, ancak British Airways üzerinden yapılan bazı uçuşlar, Sky Harbor'da gümrükten geçmenizi gerektirebilir. CBP ve çoğu hava yolu şirketi tercüman hizmetleri sağlamalıdır.
 
 Phoenix'e vardığınızda ve gümrükten geçtiğinizde, bagajınızı bagaj teslim bölümünden aldığınızdan emin olun. Birisi size şehirde rehberlik ediyorsa, büyük olasılıkla bagaj tesliminin yakınında bekliyor olacaklardır. Üzerinde adınızın yazılı olduğu bir tabela tuttuklarını görebilirsiniz.
@@ -25,3 +25,37 @@ Tucson'da UA'nın A Dağı olan Sentinel Peak adında bir dağ var. UA öğrenci
 Yakınlarda yürüyüşe çıkmak için doğal bir yer olan Tempe Town Gölü bulunmaktadır. 
 
 Tempe Belediye Binası, ters çevrilmiş bir piramit şeklindedir.
+
+Daha sonra South Mountain Park'a gideceğiz. Zirvesi 2690 ft (820 m) olan Güney Dağı'na tırmanabilirsiniz. Dağlar, Akimel O'odham ve Kwevkepaya Yavapai halkı için kutsal kabul edilir.
+
+Son cazibe merkezimiz Gizem Kalesi. 1930'larda Boyce Luther Gulley tarafından kızı Mary Lou Gulley için yaptırılmıştır. Mary Lou, Boyce'nin 1945'teki ölümünden 2010'daki ölümüne kadar kalede yaşadı. 18 odası var ve elektrik ve sıhhi tesisat sadece 1992'de eklendi.
+
+Kalacağınız otel Four Points by Sheraton Phoenix South Mountain'dır. Eve gideceğim ve sabah seni alacağım.
+
+## 2. gün
+Uyanmak! Kusura bakmayın, size yeni elektrikli testeremi ve hokey maskemi göstermek istedim. Kahvaltı zamanı. Kellogg'un reklam kampanyasının dediği gibi, kahvaltı günün en önemli öğünüdür.
+
+Kahvaltı istemiyor musun? İyi, umurumda değil. Sadece arabaya bin.
+
+İlk önce Japon Dostluk Bahçesine gideceğiz.
+
+Müzik Aletleri Müzesi'ne gidelim. Burada birkaç müzik aleti bulabilirsiniz.
+
+Ardından, OdySea'ye gideceğiz. Olası bir sele neden olduğum için oradan yasaklanmış olabilirim ama öğrenmek istemiyorum, bu yüzden dostum Jeff, OdySea'de size rehberlik edecek.
+
+Sonra Green Corner'da öğle yemeği yiyeceğiz.
+
+Son olarak Doğa Tarihi Müzesi'ne gideceğiz. Ardından otele geri döneceğiz.
+
+## 3. gün
+Uyanmak! Oh, bir dilim turta istediğini sanıyordum. Sorun yok. Hadi havaalanına gidelim.
+
+Havalimanında bir minyatür sanat müzesi var.
+
+Check-in yaptırın, TSA'nın anlamsız istilacı güvenliğinden geçin ve kapınızı bulun.
+
+Orada bekle ve biraz vejetaryen yemek bul, çünkü aklı başında kimsenin asla gitmeyeceği bir şehir olan Phoenix, havaalanında helal yemek seçeneklerine sahip değil.
+
+İnsanlar uçağa binip yerinizi bulana kadar bekleyin.
+
+Phoenix'i ziyaret ettiğiniz için teşekkür ederiz. Hemen her şeyi gördün.
